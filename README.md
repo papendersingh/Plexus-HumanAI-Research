@@ -58,4 +58,4 @@ Research activities are intended to respect participant autonomy, informed conse
 Contact
 
 Plexus HumanAI Labs
-Email: PapenderSingh@gmail.com
+Email: PapenderSinghv@gmail.com
